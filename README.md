@@ -5,6 +5,6 @@
 
 - 📫 How to reach me **pamidunawodya@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:+9478-8175254</h3>
 <p align="left">
 </p>
